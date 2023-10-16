@@ -1,1 +1,1 @@
-# main
+My name is Amanda, but everyone usually calls me Mandy. I am born and raised in Sweden 🇸🇪 but I moved to the UK 🇬🇧 to study and loved it so much that I decided to stay! On my spare time I like to watch K-dramas and animes and spend time with my friends.👯‍♀️ 
